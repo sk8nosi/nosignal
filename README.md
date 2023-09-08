@@ -1,2 +1,2 @@
 # nosignal
-Revolutionizing Digital Identity and Communication through a Decentralized Social Networktransformative approach
+Revolutionizing Digital Identity and Communication through a Decentralized Social Network
